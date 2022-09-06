@@ -1,5 +1,4 @@
 Hello there; welcome 👋🏾
-AltSchool badge
 i'm a teacher in a prestigious British School and a student of soft ware engineering in Alt school Africa Software
 Here's a quick summary about me:
 😊 pronouns her/she
